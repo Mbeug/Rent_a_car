@@ -1,3 +1,3 @@
-Thanks for downloading this theme!
+Vous voici sur l’application de lactation de voiture
 
-Get more freebies, collection from http://bootstraptaste.com
+Utilisation d’un thème de Boostrap
